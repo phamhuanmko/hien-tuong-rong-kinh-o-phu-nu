@@ -50,4 +50,5 @@ Rong kinh có thể tự điều trị bằng thuốc tránh thai, nhưng loại
 Bên cạnh đó, các chị em phụ nữ cũng nên đi khám phụ khoa định kỳ 3 -6 tháng/lần để nắm rõ tình trạng sức khỏe của mình và không bỏ lỡ mất thời điểm “vàng” để phát hiện và điều trị kịp thời Benh phu khoa. Ngoài ra, chị em cũng nên quan hệ tình dục an toàn, vừa phải, vệ sinh cơ thể và âm đạo sạch sẽ và sử dụng nhiều thực phẩm xanh, giàu chất xơ…
 
 Trên đây là một số thông tin chung về bệnh rong kinh ở phụ nữ. Giúp bạn có thể nhận biết được bệnh, nhìn nhận thấy được sự nguy hiểm của bệnh và có cách phòng tránh phù hợp, kịp thời. Nếu bạn còn thắc mắc hay cần tư vấn, xin các bạn vui lòng gọi điện đến hotline 0385456294 bác sĩ CKI Nguyễn Thị Thành sẵn sàng giải đáp mọi thắc mắc của bạn!
+
 Xem thêm: https://readthedocs.org/projects/benh-tri-la-gi-7-dau-hieu-thuong-gap-nhat-cua-benh/
